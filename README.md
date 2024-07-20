@@ -1,0 +1,1 @@
+![Node.png](..%2F..%2FDesktop%2F%CD%EE%E2%E0%FF%20%EF%E0%EF%EA%E0%20%285%29%2FNode.png)
